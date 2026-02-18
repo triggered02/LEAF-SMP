@@ -46,7 +46,7 @@ If you join our Discord or use external platforms, those services operate under 
 ## Contact
 
 **Owner / Operator:** Triggered  
-**Email:** support@triggeredhosts.space  
+https://discord.gg/Bgdh2K5drv  
 
 ---
 
